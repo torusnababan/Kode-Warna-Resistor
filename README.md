@@ -1,1 +1,0 @@
-# Kode-Warna-Resistor
